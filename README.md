@@ -1,8 +1,4 @@
 ### Hi there 👋,I'm Sinchana N K
-
-
-
-#  About Me:
 ⚡ I have completed B.E in Electronics and Instrumentation from Dr AIT,Banglore<br>💬 Reach me at : sinchanank2001@gmail.com<br>
 
 #  GitHub Stats:
