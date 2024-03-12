@@ -1,5 +1,6 @@
 ### Hi there 👋,I'm Sinchana N K
 I have completed B.E in Electronics and Instrumentation from Dr AIT,Banglore
+
 Reach me at: sinchanank2001@gmail.com
 
 <!--
